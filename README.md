@@ -7,3 +7,5 @@
 .</p>
 <p align="center">image credit to @/ninanyamnyum.</p>
 <p align="center"><img width="498" height="63" alt="Sans titre 40_20250831225918" src="https://github.com/user-attachments/assets/0e58eac6-3b99-4e5e-8a22-819a8bb607fc" /></p>
+<p align="center"><img width="735" height="440" alt="Sans titre 43_20250831230505" src="https://github.com/user-attachments/assets/a4c18785-6f91-42b4-b732-b92e5331fc48" /></p>
+<p align="center">can he die</p>
